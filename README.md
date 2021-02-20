@@ -1,2 +1,2 @@
 # TU
-* [MyYoutube](https://www.youtube.com/channel/UCpj78GrvyQrOvZHWAGlceNg?view_as=subscriber)
+* [MyYoutube](https://www.youtube.com/channel/UCRzFswpIR8YzAfP8hev4BzA)
